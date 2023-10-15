@@ -1,1 +1,1 @@
-- 👋 Hey, Je suis @Xanatel
+- 👋 Hey, I am Xanatel
